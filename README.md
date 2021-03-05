@@ -1,3 +1,3 @@
 # 1.7percentHappier
 
-:smile:
+:slightly_smiling_face:
